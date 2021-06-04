@@ -1,8 +1,8 @@
-## AVERtek 
+## AVERtek XR-NOW Technology
 
 ---
 
-### Human Body musculature
+### Human Body Musculature
 
 <!--[OSI Building Brands; Growing Business](/https://osicreative.com/)-->
 <!--<img src="images/dummy_thumbnail.jpg?raw=true"/> -->
